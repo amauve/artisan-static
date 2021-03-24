@@ -33,3 +33,5 @@ Scene II:
 
 
 Scene III:
+
+men in their late 20s displaying idiotic behavior, competing with each other
