@@ -8,8 +8,6 @@ Context: Suburbs of Paris.
 
 A group of late 20s ecologists protesters are occupying a land meant to welcome the new metro line connecting Paris to the north suburb city of G, in the shadow of political and economical crisis.
 
-
-
 Characters: 4
 
 1: Woman, working at a corporate job in Paris
@@ -17,3 +15,5 @@ Characters: 4
 2: Man, part of the protesters.
 
 3:
+
+4:
