@@ -42,6 +42,6 @@ Scene IV:
 
 Saturda morning
 
-2 is in a telephone conversation with the organiser of the demonstration, about the possible that police will be disrupting them.
+2 is in a phone call with the organiser of the demonstration, about the possible that police will be disrupting them.
 
 1 arrived early, and they discuss together.
