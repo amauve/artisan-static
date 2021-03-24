@@ -10,10 +10,14 @@ A group of late 20s ecologists protesters are occupying a land meant to welcome 
 
 Characters: 4
 
-1: Woman, working at a corporate job in Paris
+1: Woman, working at a corporate job in Paris. She's living in a tiny appartment in G. alone.
 
 2: Man, part of the protesters.
 
 3: drop out school girl 
 
 4:
+
+
+
+Scene I:
