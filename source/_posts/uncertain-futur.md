@@ -26,4 +26,4 @@ Scene I:
 
 Scene II:
 
-1 in the train back home. 2 distributing flyers to the crowd leaving the train, he holds her a flyer but she goes past him. he then replied (" Ah c'est classe de pas rép")
+1 in the train back home. 2 distributing flyers to the crowd leaving the train, he holds her a flyer but she goes past him. he then replied (" Ah c'est classe de pas rép"). 1
