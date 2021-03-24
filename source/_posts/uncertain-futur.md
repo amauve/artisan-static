@@ -34,4 +34,6 @@ Scene II:
 
 Scene III:
 
-men in their late 20s displaying idiotic behavior, competing with each other.
+In a bar, Paris.
+
+men in their late 20s displaying idiotic behavior, competing with each other. 3 comes at their table and serves them beers.
