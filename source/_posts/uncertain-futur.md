@@ -21,3 +21,5 @@ Characters: 4
 
 
 Scene I:
+
+1 is sitting in front of her manager, during the annual evaluation.
