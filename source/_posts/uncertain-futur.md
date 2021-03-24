@@ -14,7 +14,7 @@ Characters: 4
 
 2: Man, part of the protesters.
 
-3: drop out school girl, she wants to work in a ong.
+3: drop out school girl, she wants to work in a ong
 
 4:
 
@@ -22,4 +22,4 @@ Characters: 4
 
 Scene I:
 
-1 is sitting in front of her manager, during the annual evaluation. Manager is satisfied by her work, but feels that she can do better,
+1 is sitting in front of her manager, during the annual evaluation. Manager is satisfied by her work, but feels that she can do better, 1 wants to be promoted but manager's answer  remains vague ("we'll talk about it later")
