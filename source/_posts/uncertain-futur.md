@@ -14,7 +14,7 @@ Characters: 4
 
 2: Man, part of the protesters.
 
-3: drop out school girl 
+3: drop out school girl, she wants to work in a ong.
 
 4:
 
