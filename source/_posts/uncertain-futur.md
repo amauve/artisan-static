@@ -26,4 +26,4 @@ Scene I:
 
 Scene II:
 
-1 in the train back home. 2 distributing flyers to the crowd leaving the train, he holds her a flyer but she goes past him. he then replied (" Ah c'est classe de pas rép"). 1
+1 in the train back home. 2 is distributing flyers to the crowd leaving the train, he holds her a flyer but she goes past him. he then replied (" Ah c'est classe de pas rép"). 1 turns around, grab the flyer from his hands and said ("c'est bon tu te sens mieux maintenant ?") and she carries on reading it.
