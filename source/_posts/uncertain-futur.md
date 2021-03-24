@@ -16,9 +16,7 @@ Characters: 4
 
 3: drop out school girl, she wants to work in a ong
 
-4:
-
-
+4: stupid young male 
 
 Scene I: 
 
@@ -30,10 +28,20 @@ Scene II:
 
 " Manifestation contre la construction de la ligne metro 17 à G. Le samedi 20/02, venez nombreux"
 
-
-
 Scene III:
 
 In a bar, Paris.
 
-men in their late 20s displaying idiotic behavior, competing with each other. 3 comes at their table and serves them beers.
+men in their late 20s displaying idiotic behavior, competing with each other. 3 comes at their table and serves them beers. 4 asks 3 if she will go to the protest saturday, and if so, he wants to pick her up. 
+
+3 doesn't know yet, she tells her collegue that she hates these guys
+
+
+
+Scene IV: 
+
+Saturda morning
+
+2 is in a telephone conversation with the organiser of the demonstration, about the possible that police will be disrupting them.
+
+1 arrived early, and they discuss together.
