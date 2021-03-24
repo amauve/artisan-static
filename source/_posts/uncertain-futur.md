@@ -32,7 +32,7 @@ Scene III:
 
 In a bar, Paris.
 
-men in their late 20s displaying idiotic behavior, competing with each other. 3 comes at their table and serves them beers. 4 asks 3 if she will go to the protest saturday, and if so, he wants to pick her up. 
+men in their late 20s displaying idiotic behavior, competing with each other. 3 comes at their table and serves them another round of beers. 4 asks 3 if she will go to the protest saturday, and if so, he wants to pick her up. 
 
 3 doesn't know yet, she tells her collegue that she hates these guys
 
