@@ -22,4 +22,4 @@ Characters: 4
 
 Scene I:
 
-1 is sitting in front of her manager, during the annual evaluation.
+1 is sitting in front of her manager, during the annual evaluation. Manager is satisfied by her work, but feels that she can do better,
