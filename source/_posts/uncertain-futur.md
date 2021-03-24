@@ -40,7 +40,7 @@ men in their late 20s displaying idiotic behavior, competing with each other. 3 
 
 Scene IV: 
 
-Saturdaymorning
+Saturday morning
 
 2 is in a phone call with the organiser of the demonstration, about the possible that police will be disrupting them.
 
