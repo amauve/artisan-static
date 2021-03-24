@@ -20,7 +20,7 @@ Characters: 4
 
 
 
-Scene I:
+Scene I: 
 
 1 is sitting in front of her manager, during the annual evaluation. Manager is satisfied by her work, but feels that she can do better, 1 wants to be promoted but manager's answer  remains vague ("we'll talk about it later")
 
