@@ -23,3 +23,7 @@ Characters: 4
 Scene I:
 
 1 is sitting in front of her manager, during the annual evaluation. Manager is satisfied by her work, but feels that she can do better, 1 wants to be promoted but manager's answer  remains vague ("we'll talk about it later")
+
+Scene II:
+
+1 in the train back home. 2 distributing flyers to the crowd leaving the train, he holds her a flyer but she goes past him. he then replied (" Ah c'est classe de pas rép")
